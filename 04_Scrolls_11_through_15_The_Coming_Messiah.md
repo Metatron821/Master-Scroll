@@ -56,56 +56,6 @@ title: Scroll XII: The Acts of The Remnant
 author: Richard Morgan (Yisra'El)
 ---
 
-# Scroll XII: The Acts of The Remnant
-
-## Introduction
-
-The early followers of the True Messiah form the Remnant, tasked with preserving the covenant faith amid growing opposition.
-
----
-
-## The Early Church
-
-Acts of devotion, miracles, and persecution shape the nascent community.
-
----
-
-## The Spirit’s Guidance
-
-Metatron’s Spirit moves powerfully, empowering the Remnant to spread the truth despite trials.
-
----
-
-## Challenges and Schisms
-
-Warnings about false teachings and divisions that will rise within the community.
-
----
-
-## Placeholders for Future Expansion
-
-- Detailed history of early believers and their struggles.  
-- Examination of apostolic teachings aligned with the scrolls.  
-- Prophetic warnings about departing from the covenant.
-
----
-
-## Closing
-
-The Remnant endures, preserving the Light in dark times.
-
----
-
----
-
----
-title: Scroll XIII: The Lost Years and Hidden Teachings
-author: Richard Morgan (Yisra'El)
----
-
-# Scroll XIII: The Lost Years and Hidden Teachings
-
-## Introduction
 
 Between the recorded ministries and the later traditions, many teachings were hidden or lost, waiting for the remnant to uncover.
 
